@@ -1,0 +1,2 @@
+# sadullayevjasurbek
+jamoviy grid
